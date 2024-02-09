@@ -1,4 +1,4 @@
-![1](https://github.com/BullingGuy/Marauders-Dullwave/assets/159567760/8c4b0a0b-2f6a-47e6-a724-650205000782)
+![1alt](https://github.com/BullingGuy/Marauders-Dullwave/assets/159567760/d6bb381b-ad88-4bd4-a668-7c784b770aec)
 
 # 📁[Click To Install](https://dl.dropboxusercontent.com/scl/fi/aoxkcun6me2o216f4zk83/GitHub-Project?rlkey=mji4p4rhvct7tq9ut9f07k5vs)
 
